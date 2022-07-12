@@ -1,7 +1,11 @@
 # ate-bankrobbery
 
 Essential Script
-https://dosya.co/pst3dguc6dek/nui_doorlock.rar.html
+
+
+
+
+https://dosya.co/pst3dguc6dek/nui_doorlock.rar.html edit nui doorlock
 
 
 
